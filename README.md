@@ -34,5 +34,3 @@ To become a professional in the tech field and continue growing in the world of 
 
 ---
 
-## 📫 Connect with Me
-Coming soon...
